@@ -1,3 +1,3 @@
-# Community Classroom OP
+# Community Classroom is OP
 
--Shruti Gurunathan says that this community is amazing.
+Shruti Gurunathan says that this community is amazing.
